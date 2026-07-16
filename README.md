@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @ritzidk1234
+- 👋 Hi, I’m @ritzddragon
 - 👀 I’m interested in video games, coding, cubing, math, etc
 - 🌱 I’m currently learning how to master cubing, coding, and world countries
 - 💞️ I’m looking to collaborate on ...
